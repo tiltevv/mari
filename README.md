@@ -1,2 +1,3 @@
 # mari
-https://sun9-55.userapi.com/impf/8InRgk42r7JtxyrapiVF99C-qC7OhCULwvOU5w/E-fxsblLymk.jpg?size=1818x606&quality=95&crop=0,0,1590,530&sign=332861aaf85c694f00d05547db15059d&type=cover_group
+![image](https://github.com/user-attachments/assets/cec04908-a837-4d25-9950-8f5a32d9d152)
+
